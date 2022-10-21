@@ -4,3 +4,4 @@
 </br>
 <p align="center"><b>点击安装：<a href="https://www.td425.online/wp-content/uploads/2022/09/%E3%80%90%E5%85%A8%E7%90%83%E9%80%80%E5%85%9A%E6%9C%8D%E5%8A%A1%E4%B8%AD%E5%BF%83%E3%80%91%E5%AE%89%E5%8D%93%E7%89%881.0.apk">安卓App</a> | <a href="https://www.td425.online/wp-content/uploads/2022/10/webclip-tuidang/install.html">苹果App</a> | <a href="https://www.td425.online/wp-content/uploads/2022/09/%E3%80%90%E5%85%A8%E7%90%83%E9%80%80%E5%85%9A%E6%9C%8D%E5%8A%A1%E4%B8%AD%E5%BF%83%E3%80%91PC%E7%89%88.zip">Win电脑版软件</a>
 </b></p>
+<p align="center"><b>如果暂时访问不了，请勿删除App，隔一阵子再访问</b></p>
